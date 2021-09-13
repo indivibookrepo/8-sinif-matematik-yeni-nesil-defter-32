@@ -1,0 +1,1 @@
+# 8-sinif-matematik-yeni-nesil-defter-32
